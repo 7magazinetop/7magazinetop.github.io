@@ -1,0 +1,1 @@
+# 7magazinetop.github.io
